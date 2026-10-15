@@ -1,6 +1,3 @@
-https://www.telegram.hr/zivot/papataci-ugriz-kako-ih-se-rijesiti-zastita-ljudi/
-
-
 >Ampula za pse težine 10-25 kg
 
 Djeluje do 1 mjesec, uz učinak 24 sata nakon primjene
