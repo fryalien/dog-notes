@@ -1,14 +1,6 @@
 https://www.telegram.hr/zivot/papataci-ugriz-kako-ih-se-rijesiti-zastita-ljudi/
 
 
->ADVANTIX
-
-Elanco Advantix ampula za pse od 10-25 kg, 1 komad
-
-Šifra proizvoda
-
-8508
-
 >Ampula za pse težine 10-25 kg
 
 Djeluje do 1 mjesec, uz učinak 24 sata nakon primjene
